@@ -6,5 +6,5 @@ We have a website now so the github landing page doesn't make as much sense.
 
 I hope you enjoyed your new wallet NFT. 
 
-w/ 💙,<br>
+💙,<br>
 thisbetom.eth
